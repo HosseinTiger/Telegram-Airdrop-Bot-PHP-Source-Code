@@ -10,5 +10,5 @@
 
 -One Time Purchase (Only 300 USD)
 
- Our Telegram ID For Getting Demo and Buy:
+ Our Telegram ID For Getting Demo and Buy Full Source Code:
  https://t.me/TIGERDESIGN_IR
