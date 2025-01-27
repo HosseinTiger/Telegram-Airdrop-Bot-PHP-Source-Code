@@ -8,7 +8,7 @@
 
 -Full Guide Installation
 
--One Time Purchase (Only 350 USD)
+-One Time Purchase (Only 220 USD)
 
  Our Telegram ID For Getting Demo and Buying Full Source Code:
  https://t.me/TIGERDESIGN_IR
